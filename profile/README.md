@@ -1,1 +1,1 @@
-Jechies — Builing stuff and for hackathons.
+Jechies — Builing stuff and winning hackathons.
